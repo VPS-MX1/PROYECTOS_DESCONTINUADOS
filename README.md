@@ -36,10 +36,3 @@
 * SIN VIRUS TROJANO (BOTNET) 
 * ARCHIVOS LIBERADOS (DECENCRIPTADOS)
 ```
-
-```
-☆ https://t.me/admmanagerfree ☆
-
-```
-
-**By: [  ⃘⃤꙰✰ ]**
